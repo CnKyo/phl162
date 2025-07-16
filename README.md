@@ -1,1 +1,1 @@
-@@@fyinformation.cc@@@
+@@@fuegocash.xyz@@@
